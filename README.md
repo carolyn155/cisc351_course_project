@@ -1,2 +1,2 @@
 # cisc351_course_project
-carolyn has small peen
+ted has small peen
